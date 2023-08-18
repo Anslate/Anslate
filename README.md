@@ -12,7 +12,7 @@ BW2023三次未抢到票者
 ---
 <details>
 <summary>查询本人「老婆」：</summary>
-初音未来 穗月椛 鸢一折纸 星野瑠美衣 四系乃 ……  
+初音未来 穗月椛 鸢一折纸 星野瑠美衣 冰芽川四糸乃 ……  
 </details>
 <details>
 <summary>查询本人「成分」：</summary>
